@@ -4,7 +4,7 @@
 
 2 cenouras
 
-2 xicara de farinha
+3 xicara de farinha
 
 1 xicara de açúcar
 
