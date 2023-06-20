@@ -6,7 +6,7 @@
 
 3 xicara de farinha
 
-1 xicara de açúcar
+2 xicara de açúcar
 
 1 xicara de óleo
 
